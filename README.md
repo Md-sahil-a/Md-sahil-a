@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=amaan-sahil-au-14&label=Profile%20views&color=0e75b6&style=flat" alt="amaan-sahil-au-14" /> </p>
 
-- 💻 I’m currently working on **Manga App.**
+- 💻 I’m currently working on **Skills.**
 
 - 🏫 I’m currently learning **Data Structures and Algorithms.**
 - 😂 Funfact **I am trying to be an ambidextrous.**
