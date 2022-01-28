@@ -1,6 +1,6 @@
 ![ani](https://user-images.githubusercontent.com/77974484/146774170-f7f82da9-3ca4-405c-9112-6a4d5cba81c9.gif)
 
-<h1 align="center">Hello Folks 👋</h1>
+<h1 align="center">Hello Folks <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/raw/master/Assets/Hi.gif" width="29px" style="max-width: 100%;"></h1>
 <h3 align="center">I'm Sahil and I am a student. I always try to grow and learn something new. I love to code and read books.</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=amaan-sahil-au-14&label=Profile%20views&color=0e75b6&style=flat" alt="amaan-sahil-au-14" /> </p>
