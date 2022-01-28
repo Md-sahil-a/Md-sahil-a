@@ -10,9 +10,15 @@
 - 🏫 I’m currently learning **Data Structures and Algorithms.**
 - 😂 Funfact **I am trying to be an ambidextrous.**
 
-- ✍🏼 Apart from coding. I also maintain a blog - you can find my article on -  [https://mdsahilamaan2017.medium.com/](https://mdsahilamaan2017.medium.com/)
+<h3 align="left">Connect with me:</h3>
+<p align="left">
+<a href="https://linkedin.com/in/md-sahil-amaan-1182a3205" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="md-sahil-amaan-1182a3205" height="30" width="40" /></a>
+<a href="https://medium.com/@mdsahilamaan2017" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/medium.svg" alt="@mdsahilamaan2017" height="30" width="40" /></a>
+<a href="https://www.hackerrank.com/mdsahilamaan2017" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/hackerrank.svg" alt="mdsahilamaan2017" height="30" width="40" /></a>
+<a href="https://www.leetcode.com/mdsahilamaan2017" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/leet-code.svg" alt="mdsahilamaan2017" height="30" width="40" /></a>
+</p>
 
-- ✉️ How to reach me **Mdsahilamaan2017@gmail.com**
+
 
 
 <h3 align="left">Languages and Tools:</h3>
