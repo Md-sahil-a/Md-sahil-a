@@ -4,7 +4,8 @@
 
 
 
-![man-reading-book-character-illustration-free-vector](https://user-images.githubusercontent.com/77974484/185185410-31d6bf00-c6b3-4722-bea4-3e365e945674.jpg)
 
 
+
+![cat](https://user-images.githubusercontent.com/77974484/185539729-fd6b2487-2257-4edf-a177-269656a11ae9.gif)
 
