@@ -9,7 +9,7 @@
 
 
 
-- 🌱 I’m currently learning **everything**
+- 🌱 I’m currently learning **Node.js**
 
 - 👨‍💻 All of my projects are available at [https://github.com/Md-sahil-a?tab=repositories](https://github.com/Md-sahil-a?tab=repositories)
 
