@@ -6,7 +6,8 @@
 
 - 🌱 I’m currently Making Project with **Node.js**
 
-- 👨‍💻 All of my projects are available at [https://github.com/Md-sahil-a?tab=repositories](https://github.com/Md-sahil-a?tab=repositories)
+- 👨‍💻 All of my projects are available at 
+<a href="https://github.com/Md-sahil-a?tab=repositories">Projects </a>   
 
 - 📫 How to reach me **mdsahilamaan2017@gmail.com**
 
@@ -29,7 +30,7 @@
   
   
   
-Currently reading **Clinical neuroanatomy by Richard s snell**
+Currently reading **Clinical neuroanatomy by Richard s snell.**
   
 
 
