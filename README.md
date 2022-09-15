@@ -29,7 +29,7 @@
   
   
   
-Currently reading **Clinical neuroanatomy by richard s snell**
+Currently reading **Clinical neuroanatomy by Richard s snell**
   
 
 
