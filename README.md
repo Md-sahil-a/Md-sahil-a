@@ -4,7 +4,7 @@
 
 
 
-- 🌱 I’m currently Making Project with **Node.js**
+- 🌱 currently busy with Projects.
 
 - 👨‍💻 All of my projects are available at 
 <a href="https://github.com/Md-sahil-a?tab=repositories">Projects </a>   
