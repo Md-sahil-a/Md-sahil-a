@@ -22,7 +22,7 @@
 
 <h1>❤️ to Read Books.</h1>
 <p>Reading is dreaming with Open eyes.</p>
-<p><img align="left" src="https://img.freepik.com/premium-vector/boy-reading-books-hand-drawn-sketch-vector-illustration_460848-3941.jpg?w=2000" style="height:400px"/> 
+<p><img align="left" src="https://user-images.githubusercontent.com/77974484/205093686-f722317e-9880-477d-bf45-54215e40b81e.jpeg" style="height:400px"/> 
 
   
   
@@ -30,7 +30,7 @@
   
   
   
-Currently reading **Clinical neuroanatomy by Richard s snell.**
+Currently reading **The Lean Startup, by Eric Ries**
   
 
 
