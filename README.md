@@ -1,11 +1,7 @@
 
 
-<h1 align="center">Hello Folks</h1>
-
-
-
-- ![image](https://user-images.githubusercontent.com/77974484/213873872-ff8c089e-883c-4a89-9849-4cd42c0eca30.png)
- currently busy with 2017.
+<h1> .إِقْرَأْ بِاسْمِ رَبِّكَ الَّذِي خَلَقَ</h1>
+<h1>READ with the Name of your Rabb.</h1>
 
 - 👨‍💻 All of my projects are available at 
 <a href="https://github.com/Md-sahil-a?tab=repositories">Projects </a>   
