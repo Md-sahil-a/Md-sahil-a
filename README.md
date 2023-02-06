@@ -1,7 +1,7 @@
 
 
 <h1> .إِقْرَأْ بِاسْمِ رَبِّكَ الَّذِي خَلَقَ</h1>
-<h1>READ with the Name of your Rabb.</h1>
+
 
 - 👨‍💻 All of my projects are available at 
 <a href="https://github.com/Md-sahil-a?tab=repositories">Projects </a>   
