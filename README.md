@@ -1,6 +1,5 @@
 
-يا مرحبا!
-<h1> .إِ</h1>
+<h1> يا مرحبا</h1>
 
 
 - 👨‍💻 All of my projects are available at 
