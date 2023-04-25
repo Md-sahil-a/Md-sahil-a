@@ -1,4 +1,4 @@
-<h1>4 Years, إن شى الله 😌</h1>
+<h1>4 Years, إن شى الله </h1>
 <h1>If you want to compare ambitions, mine is bigger! </h1>
 
 
