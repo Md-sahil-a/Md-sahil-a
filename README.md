@@ -3,7 +3,7 @@
 
 
 
-"I decided to be like ****** I don’t care if I die for it."
+"Time starts ⏳"
 
 
   
