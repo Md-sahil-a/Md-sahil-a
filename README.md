@@ -2,8 +2,7 @@
 
 
 photocopy, hmmm♥️.
-
-My ghost 👻😂♥️
+The pain...
 
   
 
