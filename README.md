@@ -1,6 +1,6 @@
 <h1>4 Years, إن شى الله </h1>
 
-I don’t care who you are! I will surpass you!
+It's hard and very painful when your heart is at war with your mind.
 
 
 
