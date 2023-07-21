@@ -4,7 +4,6 @@
 
 
 
-you are killing me and you are keeping me from dying, that is love.
-
+I pray for you whenever this heart of mine misses you.
 
 
