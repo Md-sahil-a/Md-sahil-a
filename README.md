@@ -4,6 +4,8 @@
 
 
 
-I pray for you whenever this heart of mine misses you.
+If someone is really into you, you don't have to tell them for a text, call, or to spend time.
 
+They will do it if you are a priority.
 
+And i felt that......
