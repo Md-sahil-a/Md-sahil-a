@@ -4,12 +4,6 @@
 
 
 
-
-
-
-میں اس کا ہاتھ تھامے مدینہ کی گلیوں میں چلنا چاہتا ہوں، میری سادگی دیکھ  کیا چاہتا ہوں.
-
-
-
+be loyal no matter what, because loyalty is everything.
 
 
