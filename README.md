@@ -1,6 +1,4 @@
 
-Sirf ek cheez hee toh bola tha karne ko, 
-lekin woh nahi krra tumne, 
 mujhe meri value pata chal gayi 💔.
 
 
