@@ -1,7 +1,12 @@
 
 4 years إن شى الله
 
-I didn't know that I was too bad, made you distracted, please always be happy, May Allah bless and succeed you.
+Your happiness matters most to me, even if it means giving you the space you need. My love for you remains unwavering!
+ 
+ 
+
+ 
+please always be happy, May Allah bless and succeed you.
 
 
- bacha .
+ bacha ❤️ .
