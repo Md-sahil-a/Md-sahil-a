@@ -1,12 +1,9 @@
 
 4 years إن شى الله
 
-Your happiness matters most to me, even if it means giving you the space you need. My love for you remains unwavering!
- 
- 
+Every moment with you feels like a beautiful verse in the poetry of my life. 
 
- 
-please always be happy, May Allah bless and succeed you.
+My heart skips a beat when I'm with you, and I long for an eternity filled with your laughter, your love, and your presence.
 
 
  bacha ❤️ .
