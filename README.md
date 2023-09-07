@@ -1,9 +1,10 @@
 
 4 years إن شى الله
 
-Every moment with you feels like a beautiful verse in the poetry of my life. 
+Facing my family, her absence is a relentless torment, a burning abyss that leaves me shattered, gasping for the love that should be here but isn't. 
 
-My heart skips a beat when I'm with you, and I long for an eternity filled with your laughter, your love, and your presence.
+Ya Allah you know everything but why why why ! i thought this time she won't do again but she has done the same thing, give me the peace please !
 
 
- bacha ❤️ .
+ bacha  you should have to be with me when i'm facing just for you, but you only care about yourself, 
+ do whatever you want.....
