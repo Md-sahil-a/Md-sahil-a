@@ -1,12 +1,12 @@
 
 4 years إن شى الله
 
-In your struggles and your joys,
+You make my smile a little bigger,
 
-our hearts beat as one, 
+My laugh a little louder,
 
-for your problems are mine, 
+My heart beat a little faster,
 
-just as your happiness is a shared delight.
+and my life shine brighter.
 
 bacha ❤
