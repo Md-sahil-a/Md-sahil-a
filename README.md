@@ -2,11 +2,10 @@
 4 years إن شى الله
 
 
+23rd August. ❤️
 
 
-Giving you your space, always remember I'm waiting for you !!
 
-bacha ❤
 
 
 
