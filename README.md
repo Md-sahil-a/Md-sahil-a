@@ -10,6 +10,4 @@ bacha ❤
 
 
 
-Now it's time to become more strong, powerful, kindest and  a billionaire person !
 
-Me and my pain......
