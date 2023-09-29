@@ -1,14 +1,16 @@
 
 4 years إن شى الله
 
-you are mine, waiting for you bacha❤️.
+میں نے تم سے دور رہنے کے لیے سب کچھ کیا، دہلی چھوڑ دیا، لیکن کامیاب نہ ہو سکا.
 
-Now gonna change myself, whenever we meet, you'll see the best version of myself ! In sha Allah. 
-
-
+موت مانگنا جرم ہے مگر میں نے وہ بھی مانگا.
 
 
+ہائے میری الجھن....
 
 
+May Allah bless you.
 
+May Allah always keep you happy.
 
+bacha ❤️.
