@@ -2,10 +2,8 @@
 4 years إن شى الله
 
 
+current mood:
 
-
-May Allah bless you.
-
-May Allah always keep you happy.
+I wish you could hug me and keep hugging me until my soul melt into tears. It's getting too heavy inside.
 
 bacha ❤️.
