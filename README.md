@@ -2,4 +2,4 @@
 
 Making Empire
 
-![Black Minimal Motivation Quote LinkedIn Banner](https://github.com/user-attachments/assets/c3dd51ab-c766-4300-8ff7-8f3d0873ec4b)
+![Black Minimal Motivation Quote LinkedIn Banner](https://github.com/user-attachments/assets/7b3cec51-c7eb-489b-bf21-4f79ee3d3e46)
